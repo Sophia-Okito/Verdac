@@ -1,2 +1,2 @@
 # Verdac
-Kennedy Chukwu was here.
+Jeremiah was here.
